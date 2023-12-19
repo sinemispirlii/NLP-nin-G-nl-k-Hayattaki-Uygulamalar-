@@ -1,1 +1,1 @@
-# NLP-nin-G-nl-k-Hayattaki-Uygulamalar-
+# NLP-nin-Gunluk-Hayattaki-Uygulamalar-
